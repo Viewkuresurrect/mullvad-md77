@@ -1,10 +1,10 @@
-Exclusive Mullvad Client | WireGuard support + streaming optimization is the best Mullvad client with WireGuard support and streaming optimization. Secure and optimized.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Viewkuresurrect.github.io/mullvad-md77/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
