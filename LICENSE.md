@@ -1,10 +1,10 @@
-حصرية Mullvad عميل | دعم WireGuard + تحسين البث هو أفضل Mullvad عميل مع دعم WireGuard و تحسين البث. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Viewkuresurrect.github.io/mullvad-md77/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
