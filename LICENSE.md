@@ -1,4 +1,4 @@
-
+Exclusive Mullvad Client | WireGuard support + streaming optimization is the best Mullvad client with WireGuard support and streaming optimization. Secure and optimized.
 
 
 
